@@ -1,0 +1,1 @@
+# CoinVS_AutoDaily
