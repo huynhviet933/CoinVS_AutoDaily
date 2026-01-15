@@ -8,6 +8,7 @@ Tham gia NHóm VIp Với Chi Phí 8u/1thang Lợi ích tham gia nhóm ViP Sẽ �
 
 Gửi Phí tháng vào đây và chụp hình gửi trực tiếp cho tôi tại discor để xác nhận Role VIp ☕ https://huynhviet933.github.io/donate_viet_mmo/ Có thể tặng tôi ít cafe tại đây
 
+<img width="559" height="227" alt="Screenshot (33)" src="https://github.com/user-attachments/assets/03d25b90-a12b-46d3-84dd-a49fb41b7713" />
 
 ================================================================================
 HƯỚNG DẪN CÀI ĐẶT VÀ CẤU TRÚC DỮ LIỆU TOOL AUTO COINVS.IO
